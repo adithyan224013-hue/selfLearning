@@ -1,2 +1,2 @@
 This is from another account
-This is amazing
+This is amazing !!
